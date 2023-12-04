@@ -1,3 +1,6 @@
-# jbp.github.io
+# Javier Barceló Pérez
+## Computer Engineer
 
-### site under construction
+
+
+### !!site under construction!!
